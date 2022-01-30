@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @sadfain
 - 👀 I’m interested in series
 - 🌱 I’m currently learning sobre lol
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate studys
+- 📫 How to reach me , não sei
 
 
 <!---
